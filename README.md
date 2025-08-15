@@ -5,3 +5,8 @@
 2. Dazu möchte ich mein **Dateien-Management** leicht verbessern
 3. Ich will meine Pause auch **nicht überstrecken** und über die Stunden **produktiv** arbeiten
 ## 2. Tag
+### Ziele
+## 3. Tag
+### Ziele
+## 4. Tag
+### Ziele
