@@ -12,9 +12,13 @@
 ### Ziele
 1. Ich möchte die genannten Arbeiten schnell und effizient lösen
 ### Tagesreflexion
+Ich habe dies erreicht
 ## 3. Tag
 ### Ziele
+1. Ich möchte mein Programm weitermachen
+2. Ich will mich nicht ablenken lassen
 ### Tagesreflexion
+Ich habe es ziemlich gut eingehalten
 ## 4. Tag
 ### Ziele
 ### Tagesreflexion
